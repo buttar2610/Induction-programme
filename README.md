@@ -24,4 +24,14 @@ We learned that the Self, as a Consciousness Entity, and the Body, as a Material
 Misunderstanding these differences can lead to feelings of deprivation and exploitation. Imagination, driven by sensation, pre-conditioning, or natural acceptance, plays a crucial role in the Self. Harmony in the Self is achieved when imagination aligns with natural acceptance, and this harmony is reflected in the Body’s well-being through self-regulation. after that we have a lecture of p2p and we got the bacis term of c++ from our seniors.
 
 # DAY 4
+The day starts with the lecture of gautam murria on "Motor Sports" in this lecture he gave a ride to the world of motorsports cars their formation, power building,structure of the motor cars . After this we have
+a lecture on "digital marketing club" by Amit kamra sir in this he described us the importance of funds for entrepreneurs who wants to start their start-up and covering the club by giving its importance in our
+life and at the end we had a lecture on "millets supper food " by shaffy makkar. She described the importance of millets for a human nowadays the intake of millets are very low as negligible but they are very
+good for our health . She also described us that how to cook millets properly
+# DAY 5
+First lecture of the is about the fitness of the engineer in this session manpreet singh described the importance of gym and exercise in our daily routine also he shared his own life journey for a fitness trainer which is very difficult for him. He also describes us the side effects of steroids and low quality supplements also he encourages everyone to join gym or do exercises daily after that brigadier ps cheema take the charge for next lecture he started by discussing the opportunity of ncc cadets he encouraged students to join ncc and shared his journey. Also he described the camps and training of ncc. In between he gave quote of punjabi literature. Then we had our break after that there is two classes after the classes the college day ended
 
+# DAY 6
+The day started with 2 classes after attending the classes there is a break for one hour after the  break all the students are scheduled to go auditorium there are two lectures one is from Dr. Lakhvir singh
+(Incharge CML)and other is by Dr.jasvir singh (Incharge NSS) in these first lecture is about CML and NPETL course which is very helpful for the students after that Shabad kirtan programme is organised by NSS and
+after that there is also a fun act which is really very funny and made everyone laugh after that they encouraged the students to join NSS as the day ended fruitfully
