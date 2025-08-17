@@ -12,4 +12,12 @@ mechanical department they briefly described us about the machines , their uses 
 home.
 
 # DAY 2
-The day started with the lecture of priya dashni mam on "Universal Human Values" 
+The day started with the lecture of priya dashni mam on "Universal Human Values" . In this lecture mam tell us about the ture happiness of life and how to become happy.After that Dr. Arvind Dhingra start
+interacting with others. He asked for 11 boys and 11 girls to come up on stage. He made all the students laugh. Then we got a break for lunch , after that break there is a mathematics and english test scheduled.
+I feel very nervous before test but after taking i feel confident and solved the paper very easily after giving the my day 2 of college is ended.
+
+# DAY 3
+we attended a session led by members of the Causmic club. This lecture introduced us to GNDEC's Apex program, highlighting the benefits and opportunities it offers. The Causmic club members also shared information about upcoming events and the various avenues for engagement within the club. It was an exciting glimpse into the vibrant student life and the potential for growth through participation in club activities.they introduced us to GitHub, a vital tool for version control and collaboration. With there guidance, we set up our first repository, marking an important step in our journey as budding developers. This hands-on introduction was both practical and exciting, providing us with a foundational skill that will be crucial throughout our academic and professional careers.after that the lecture is on Universal Human Values (UHV). The session delved into the coexistence of the Self and Body, highlighting their distinct needs:
+- **The Self** seeks happiness, driven by desires, thoughts, and expectations. These activities are continuous and revolve around knowing, assuming, recognizing, and fulfilling.
+- **The Body** requires physical facilities such as food and other material needs, which are temporary and involve recognizing and fulfilling immediate needs.
+We learned that the Self, as a Consciousness Entity, and the Body, as a Material Entity, have different types of needs. Misunderstanding these differences can lead to feelings of deprivation and exploitation. Imagination, driven by sensation, pre-conditioning, or natural acceptance, plays a crucial role in the Self. Harmony in the Self is achieved when imagination aligns with natural acceptance, and this harmony is reflected in the Body’s well-being through self-regulation.
